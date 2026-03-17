@@ -1,2 +1,0 @@
-# Hawi-Software-Solutions
-profile
